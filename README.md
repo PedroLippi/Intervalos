@@ -1,2 +1,2 @@
 https://replit.com/@leonardoamaralv/Intervalos
-(Irei fazer upload dos arquivos em breve.)
+(Farei upload dos arquivos para cá em breve.)
